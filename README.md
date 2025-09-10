@@ -1,2 +1,2 @@
-### Hi, welcome to my simple profile👋
+### Hi, welcome to my profile👋
 
